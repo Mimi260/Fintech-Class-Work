@@ -1,1 +1,1 @@
-# Fintech-Class-Work
+My name is Mimi. My background is Law. My career goal is to get into the Fintech field. I chose a field of Fintech because I knew that it would open a world of opportunities for me.
